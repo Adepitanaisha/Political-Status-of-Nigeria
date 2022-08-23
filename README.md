@@ -18,3 +18,4 @@ the Law and Equal Protection by the Law". So, the female,  should not be segrega
 from the Political affairs of the States, that is, the power should be shuffled between the Male and Female to ensure Political Stability.</p>
 <p>So, with all I have stated and placed
 before you, with due respect, backed up by adequate evidence. I now state that "Nigeria is Politically Ripe for a Female is President". IT IS TIME FOR A GREAT REVOLUTIONARY</p>
+</html>
